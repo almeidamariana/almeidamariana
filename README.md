@@ -71,5 +71,5 @@ Busco aprimoramento constante com o objetivo de desenvolver soluções que atend
 ## 📫 Entre em Contato!
 - [**Clique aqui para acessar meu LinkedIn**](https://linkedin.com/in/-mariana-almeida)
 - **E-mail:** marianath.almeida@gmail.com
-
+- [**Clique aqui para acessar meu site pessoal**](https://sites.google.com/view/mariana-almeida/p%C3%A1gina-inicial)
 
